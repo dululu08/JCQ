@@ -1,6 +1,6 @@
 Original title: Xinhua all media+ 丨 “ramen brother” why so fire? Cold Thoughts Behind “Heat Flow”
 
-  Recently, Shandong "ramen brother" became popular on the Internet. 过去半个多月里， 全国各地的自媒体、商家和游客纷纷朝着“拉面哥”的家乡“集结”，关于“拉面哥”的各类消息迅速“霸屏”，但是其中也不乏网红主播“蹭流量”的现象。 “拉面哥”为什么这样火？ How do I think about the flow effect? 记者就此来到山东费县进行实地调查。
+  Recently, Shandong "ramen brother" became popular on the Internet. 过去半个多月里，全国各地的自媒体、商家和游客纷纷朝着“拉面哥”的家乡“集结”，关于“拉面哥”的各类消息迅速“霸屏”，但是其中也不乏网红主播“蹭流量”的现象。 “拉面哥”为什么这样火？ How do I think about the flow effect? 记者就此来到山东费县进行实地调查。
 
 　　山东费县杨树行村，这里是网红“拉面哥”程运付的家乡。 刚到村口，记者就感受到了现场的火爆氛围：道路两旁摆满了商贩摊位和广告条幅，形成了一道延续3公里的特殊风景。
 
